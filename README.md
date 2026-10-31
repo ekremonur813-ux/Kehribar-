@@ -1,0 +1,2 @@
+# Kehribar-
+Yapay zeka 
